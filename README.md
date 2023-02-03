@@ -13,3 +13,12 @@ For some time now, cooperatives have been highlighted in Brazil. For this reason
 
 Through an initial bibliographic search, I could see that this is not an original idea.
 
+Charles Gide was a cooperative theologian who lived between 1847 and 1932. According to Gide, "the development of cooperatives should gradually absorb all branches of economic activity, extending from production to consumer goods, to the point of establishing a “ cooperative republic", with its own characteristics and differentiated from socialism and capitalism" (https://www.dificio.com.br/gide-charles-1847-1932).
+
+It seems to me that many other authors before and after Charles defended this doctrine.
+
+This directory is not properly linked to my project yet. Also because this subject does not belong to my area of knowledge and scientific work.
+
+However, as a personal interest that arose in the last year, I intend to carry out a bibliographic survey on the subject, making the material or source available in this directory. And, if possible, I intend to develop a model of government that serves as an alternative proposal, also addressing the possible forms of transition. I intend to answer such questions based on the consulted literature and walking in the world of ideas.
+
+So for that purpose this directory was created. I hope that even if the idea does not manage to progress, due to lack of time and other difficulties, that this text and material available here will motivate the development of this research in at least one researcher in the area.
